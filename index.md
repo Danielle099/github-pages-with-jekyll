@@ -1,3 +1,3 @@
-# Welcome to my blog
+# **Danielle Baker**
 
-I'm glad you are here. I plan to talk about ...
+Hi! My name is Danielle. Welcome to my page.
